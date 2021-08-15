@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @s0shi
+- 🌱 I’m currently learning Java,html
+- 📫 How to reach me sushi.#6969
